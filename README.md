@@ -1,1 +1,0 @@
-# clinning-Almaty
